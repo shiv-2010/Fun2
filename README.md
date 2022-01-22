@@ -1,1 +1,1 @@
-# Fun2
+This course is amazing
